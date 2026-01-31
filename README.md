@@ -1,3 +1,4 @@
-⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=gray&label=✧⠀󠀠˖⠀󠀠°⠀󠀠knights⠀󠀠 )
-![](https://files.catbox.moe/itypw4.gif)
-![](https://files.catbox.moe/eyd3uo.png) 
+⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 ℘⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=yellow&label=✧⠀󠀠˖⠀󠀠°⠀󠀠the⠀󠀠stars⠀󠀠 )
+
+
+ ⠀󠀠 ⠀󠀠  ⠀󠀠  ⠀󠀠  ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 WIP
