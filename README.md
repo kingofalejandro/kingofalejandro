@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=kingofalejandro&color=a1eed9&label=✧⠀󠀠⠀󠀠⠀󠀠fatgOds⠀󠀠 )⠀󠀠 ![](https://i.ibb.co/Q7g2zbj/IMG-7690.gif)
+![](https://komarev.com/ghpvc/?username=kingofalejandro&color=a1eed9&label=✧⠀󠀠⠀󠀠⠀󠀠fatgOds⠀󠀠 )⠀󠀠 ![](https://pixels.crd.co/assets/images/gallery61/a916c514.gif?v=29416114)
 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 ![](https://media.discordapp.net/attachments/1356858096386834444/1493764810108702770/Untitled408_20260415080616.png?ex=69e02863&is=69ded6e3&hm=50d5078c8f7ccf5917dde98658595c86a01cd5803bef9d1eaef0101f2ac343b8&=&format=webp&quality=lossless&width=552&height=552)
 - - -
  ⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀󠀠⠀co / [sonadowling](https://rentry.co/sonadowling)
