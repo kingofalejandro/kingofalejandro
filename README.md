@@ -2,6 +2,6 @@
 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 ![](https://files.catbox.moe/7i8b3u.gif)
 
 hello me and @crushdow arent friends anymore pls dont mention them around me
-
+![](https://files.catbox.moe/7lpggq.png) brOS TRYNA GET A REASON WHY I HATE THEM
 
  
