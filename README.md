@@ -1,5 +1,5 @@
-  ⠀󠀠   ⠀󠀠 ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=b1ae9c&label=><⠀󠀠⠀󠀠⠀󠀠eggi⠀󠀠 )⠀󠀠 ![](https://files.catbox.moe/qv14de.gif) ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠[gifted rentri ♡](https://rentry.co/sonadowling)
-⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 ![](https://files.catbox.moe/7i8b3u.gif)
+  ⠀󠀠   ⠀󠀠 ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=AAAFB1&label=⚟⠀󠀠⠀󠀠⠀󠀠eggi⠀󠀠 )⠀󠀠 ![](https://files.catbox.moe/qv14de.gif) ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠[gifted rentri ♡](https://rentry.co/sonadowling)
+⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠  ⠀󠀠 ⠀󠀠 ⠀󠀠 ⠀󠀠⠀󠀠 ⠀󠀠 ![](https://cdn.imageurlgenerator.com/uploads/a168f411-f52c-48c7-8ec8-79f275e155e8.gif)
 
 
 
