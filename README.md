@@ -12,7 +12,7 @@
   <table>
     <tr>
       <td>   
-${\textsf{\color{#f5faf0} i }}$  ${\textsf{\color{#3b381e} believe }}$  ${\textsf{\color{#477491} the }}$  ${\textsf{\color{#f5faf0} good }}$   ${\textsf{\color{#bcddd3} things        }}$
+${\textsf{\color{#f5faf0} i }}$  ${\textsf{\color{#3b381e} believe }}$  ${\textsf{\color{#477491} the }}$  ${\textsf{\color{#f5faf0} good }}$   ${\textsf{\color{#bcddd3} things     ⠀⠀   }}$
       </td>
     </tr>
   </table>
