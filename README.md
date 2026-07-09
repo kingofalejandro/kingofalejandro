@@ -1,8 +1,8 @@
 
 
  ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=AAAFB1&label=⚟⠀󠀠⠀󠀠⠀󠀠eggi⠀󠀠 )
-<img src="https://files.catbox.moe/2oqbw2.png" width="250" align="right">
-[<img src="https://files.catbox.moe/8gcxil.png" width="250" align="left">](https://github.com/crushdow)
+<img src="https://files.catbox.moe/2oqbw2.png" width="250" align="left">
+[<img src="https://files.catbox.moe/8gcxil.png" width="250" align="right">](https://github.com/crushdow)
 <img src="https://files.catbox.moe/iq7s3s.png" width="270" align="left">
 
 <br>
@@ -12,7 +12,7 @@
   <table>
     <tr>
       <td>   
-${\textsf{\color{#f5faf0} i }}$  ${\textsf{\color{#3b381e} believe }}$  ${\textsf{\color{#477491} the }}$  ${\textsf{\color{#f5faf0} good }}$   ${\textsf{\color{#bcddd3} things }}$
+${\textsf{\color{#f5faf0} i }}$  ${\textsf{\color{#3b381e} believe }}$  ${\textsf{\color{#477491} the }}$  ${\textsf{\color{#f5faf0} good }}$   ${\textsf{\color{#bcddd3} things        }}$
       </td>
     </tr>
   </table>
