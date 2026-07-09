@@ -12,7 +12,7 @@
   <table>
     <tr>
       <td>   
-${\textsf{\color{#f5faf0} text }}$  ${\textsf{\color{#3b381e} text }}$  ${\textsf{\color{#477491} text }}$  ${\textsf{\color{#f5faf0} text }}$ 
+${\textsf{\color{#f5faf0} i }}$  ${\textsf{\color{#3b381e} believe }}$  ${\textsf{\color{#477491} the }}$  ${\textsf{\color{#f5faf0} good }}$   ${\textsf{\color{#bcddd3} things }}$
       </td>
     </tr>
   </table>
@@ -28,7 +28,7 @@ ${\textsf{\color{#f5faf0} 𓈒 }}$ 　 ${\textsf{\color{#3b381e} ∿ }}$　 ${
   <table>
     <tr>
       <td>   
-${\textsf{\color{#3b381e} text }}$  ${\textsf{\color{#f5faf0} text }}$ ${\textsf{\color{#477491} text }}$ text ${\textsf{\color{#f5faf0} text }}$
+${\textsf{\color{#3b381e} only }}$  ${\textsf{\color{#f5faf0} come }}$ ${\textsf{\color{#477491} to }}$ those ${\textsf{\color{#f5faf0} who }}$  ${\textsf{\color{#bcddd3} wait }}$
       </td>
     </tr>
   </table>
