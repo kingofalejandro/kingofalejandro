@@ -28,7 +28,7 @@ ${\textsf{\color{#f5faf0} 𓈒 }}$ 　 ${\textsf{\color{#3b381e} ∿ }}$　 ${
   <table>
     <tr>
       <td>   
-${\textsf{\color{#3b381e} text }}$  ${\textsf{\color{#f5faf0} text }}$ ${\textsf{\color{#477491} text }}$ scabs ${\textsf{\color{#f5faf0} text }}$
+${\textsf{\color{#3b381e} text }}$  ${\textsf{\color{#f5faf0} text }}$ ${\textsf{\color{#477491} text }}$ text ${\textsf{\color{#f5faf0} text }}$
       </td>
     </tr>
   </table>
