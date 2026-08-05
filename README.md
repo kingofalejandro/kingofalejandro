@@ -1,10 +1,10 @@
-![](https://komarev.com/ghpvc/?username=kingofalejandro&color=AAAFB1&label=⚟⠀󠀠⠀󠀠⠀󠀠eggi⠀󠀠 )
+![](https://komarev.com/ghpvc/?username=kingofalejandro&color=a3b080&label=⚟⠀󠀠⠀󠀠⠀󠀠xx2⠀󠀠 )
 <img src="https://i.pinimg.com/736x/74/b1/51/74b151feb6f9ea971a35ac2a17fd1169.jpg" width="320" align="left">
 
 <table>
     <tr>
       <td>   
-  　　　　　　　i  am remi  　　　　　　　
+  　　　　　　　　its   　　　　　　　
   </td>
     </tr>
   </table>
@@ -21,4 +21,4 @@
   <table>
     <tr>
       <td>   
-  　　　　　　　i am fat  　　　　　　　
+  　　　　　　　all yours  　　　　　　　
