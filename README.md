@@ -1,7 +1,5 @@
 ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=a3b080&label=⚟⠀󠀠⠀󠀠⠀󠀠xx2⠀󠀠 )
-<img src="https://i.pinimg.com/736x/74/b1/51/74b151feb6f9ea971a35ac2a17fd1169.jpg" width="320" align="left">
 <img src="https://i.pinimg.com/1200x/70/e5/74/70e574d2cbd8d4270e98177d747b1bdb.jpg" width="400" align="left">
-<img src="https://i.pinimg.com/1200x/f6/ec/5e/f6ec5e24ab2460782fd0ac028e8ddeab.jpg" width="320" align="left">
 
 <table>
     <tr>
