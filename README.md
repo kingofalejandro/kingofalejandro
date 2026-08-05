@@ -1,1 +1,1 @@
-@crushdow pls update my readme
+[ata](https://kingofalejandro.atabook.org/) [gifted rentry](https://rentry.co/sonadowling)
