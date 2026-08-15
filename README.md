@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=kingofalejandro&color=a3b080&label=⚟⠀󠀠⠀󠀠⠀󠀠xx2⠀󠀠 )
 <img src="https://i.pinimg.com/1200x/70/e5/74/70e574d2cbd8d4270e98177d747b1bdb.jpg" width="400" align="left">
-<img src="https://i.pinimg.com/1200x/60/5f/35/605f352f681108da6ade56b56c45d42a.jpg" width="400" align="left">
+
 
 <table>
     <tr>
