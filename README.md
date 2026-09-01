@@ -9,6 +9,7 @@ wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofa
     </tr>
   </table>
   <br>
-
+  
+  ![](https://komarev.com/ghpvc/?username=kingofalejandro&abbreviated=true&color=673374&label=　　　　　　　　lambs　　　　　　　　　)
 
 
