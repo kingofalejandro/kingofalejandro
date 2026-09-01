@@ -4,7 +4,7 @@ wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofa
 <table>
     <tr>
       <td>   
-  　　　　　　　　remii ou branzycraft   　　　　　　　
+  　　　　　　　　remii ou (branzy)craft   　　　　　　　
   </td>
     </tr>
   </table>
