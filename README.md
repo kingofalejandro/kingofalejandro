@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=kingofalejandro&abbreviated=true&color=673374&label=　　　　　　　　lambs　　　　　　　　　)
 
-wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofalejandro.atabook.org/)
+wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofalejandro.atabook.org/)　[*s*trawp](https://kingofalejandro.straw.page/)
   
 
 <table>
