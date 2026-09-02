@@ -1,6 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=kingofalejandro&abbreviated=true&color=673374&label=　　　　　　　　lambs　　　　　　　　　)
 
-wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofalejandro.atabook.org/)　[*s*trawp](https://kingofalejandro.straw.page/)
+wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofalejandro.atabook.org/)　[*s*trawp](https://kingofalejandro.straw.page/) <img src="https://files.catbox.moe/uwwfgz.png" width="200" align="left">
+
   
 
 <table>
@@ -12,5 +13,5 @@ wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofa
   </table>
   <br>
 
-![](https://files.catbox.moe/b2po4k.jpg)
+<img src="https://files.catbox.moe/i9arcd.png" width="500" align="left">
 
