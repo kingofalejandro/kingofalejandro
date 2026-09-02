@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=kingofalejandro&abbreviated=true&color=673374&label=　　　　　　　　lambs　　　　　　　　　)
+![](https://komarev.com/ghpvc/?username=kingofalejandro&abbreviated=true&color=a362a2&label=　　　　　　　　lambs　　　　　　　　　)
 
 wip　　[**rentry**](https://rentry.co/sonadowling)　[新book](https://kingofalejandro.atabook.org/)　[*s*trawp](https://kingofalejandro.straw.page/) <img src="https://files.catbox.moe/uwwfgz.png" width="200" align="left">
 
